@@ -21,4 +21,4 @@ For inquiries, reach out to us at [phil@rushcreeklabs.dev](mailto:phil@rushcreek
 
 ---
 
-© 2026 Rush Creek Labs LLC. All rights reserved.
+© 2025 Rush Creek Labs LLC. All rights reserved.
